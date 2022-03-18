@@ -1,7 +1,7 @@
 👋 Hi there to everyone, here is few facts about me
 
 - IT Student 🖥️
-- Online businessmen 📈
+- Enterprenuer 📈
 - Developer 💻
 - Graphic designer 🔷
 - Sales Expert 👔
