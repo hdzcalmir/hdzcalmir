@@ -1,5 +1,5 @@
 # 💫 About Me:
-Full Stack Developer who loves to design sometimes
+Full Stack Developer with a Computer Science engineering degree. I enjoy crafting dynamic and responsive enterprise web applications while maintaining a keen eye on code quality
 
 
 ## 🌐 Socials:
